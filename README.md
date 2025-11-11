@@ -1,1 +1,0 @@
-# eduardpanchak.github.io
